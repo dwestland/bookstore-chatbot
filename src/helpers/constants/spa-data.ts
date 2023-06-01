@@ -49,6 +49,8 @@ Anti-Aging Facial (30 ) 1hr - $115: This facial is for older skin types. We begi
 
 Sandie West profile and biography
 
+A little known fact about Sandie, served a season as stunt person for the Pink Power Ranger television show. 
+
 Sandie is a multi-talent with platforms that include Comedy Improv (worked with Eddie Izzard in London 1991 & here in Second City here in LA 200-2005) as well as stand-up (televised 2002 and on the LA circuit). She loves to direct comedy shorts, sketches, etc with her Second City & Improv Olympic talented peers.
 
 In London 1991, Sandie was founder/director of an esteemed West End Theater Company, New Playwrights & Players in Covent Garden working with Lenny Henry, Royal Court Theater and also an actress who often worked with Mike Leigh. Sandie found her home and her lifestyle in LA after coming to study at the Lee Strasberg, from day 5 in LA, Sandie appeared on stage, in films, TV comedy, talk shows, TV host, and run the gamut from Wayne's World 2 to a season as a stunt women as The Pink Power Ranger for Saban in 1999.
